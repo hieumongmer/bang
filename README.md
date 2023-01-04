@@ -1,5 +1,5 @@
     CÀY LV 60K-MAX
-    CÀY BELI 20K-3M
+    CÀY BELI 20K-2M
     CÀY f 15K-10k(nếu có fruits mua chip thì giảm còn 10k)
     CÀY BOUNTY 20K-1M
 
